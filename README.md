@@ -1,0 +1,1 @@
+This is the logo of my business.
